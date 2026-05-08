@@ -1,2 +1,2 @@
 # MSG-YOLO
-# contact me for full code😊
+# Contact me for full code😊
